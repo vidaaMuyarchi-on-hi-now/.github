@@ -8,7 +8,7 @@
 
 ### [➤ ►🌍📺📱👉 WaTch **VidaaMuyarchi** (2025) Ful𝚕 Mo𝚟ie Downl𝚘ad](https://luna-3d.com/en/movie/949716/vidaaMuyarchi-on-hi-now)
 
-[![watch_full_movie](https://luna-3d.com/en/movie/949716/vidaaMuyarchi-on-hi-now)](https://luna-3d.com/en/movie/949716/vidaaMuyarchi-on-hi-now)
+[![watch_full_movie](https://image.tmdb.org/t/p/original/r801inVk6nsf3cfDS2KlYzE66p0.jpg)](https://luna-3d.com/en/movie/949716/vidaaMuyarchi-on-hi-now)
 
 𝙸𝙵 𝚈𝙾𝚄’𝚁𝙴 𝙴𝚇𝙲𝙸𝚃𝙴𝙳 𝙰𝙱𝙾𝚄𝚃 𝚂𝙴𝙴𝙸𝙽𝙶 𝚂𝙷𝙰𝙳𝙾𝚆’𝚂 𝚃𝙷𝚁𝙸𝙻𝙻𝙸𝙽𝙶 𝙳𝙴𝙱𝚄𝚃, 𝙺𝙴𝙴𝙿 𝚁𝙴𝙰𝙳𝙸𝙽𝙶 𝙱𝙴𝙻𝙾𝚆 𝚃𝙾 𝙵𝙸𝙽𝙳 𝙾𝚄𝚃 𝙷𝙾𝚆 𝚈𝙾𝚄 𝙲𝙰𝙽 𝚆𝙰𝚃𝙲𝙷 𝚂𝙾𝙽𝙸𝙲 𝚃𝙷𝙴 𝙷𝙴𝙳𝙶𝙴𝙷𝙾𝙶 𝟹!
 
